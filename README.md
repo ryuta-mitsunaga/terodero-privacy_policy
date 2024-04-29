@@ -1,1 +1,0 @@
-# terodero-privacy_policy
